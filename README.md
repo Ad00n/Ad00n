@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ad00n
+- 👀 I’m interested in Computer programming.
+- 🌱 I’m currently learning ...
+- 💞️ I'm looking to collaborate on training.
+- 📫 ...--->
